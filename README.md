@@ -1,0 +1,2 @@
+# GameRoom
+Política de privacidade
